@@ -1,3 +1,0 @@
-# concurrentDistributedSystems
-
-Firstkjjklr sdkksdfklçs
